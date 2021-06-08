@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @aymen-chaieb
+- 👀 I’m interested in coding.
+- 🌱 I’m currently learning python and c programming language.
+- 📫 How to reach me send fb invitation to : https://www.facebook.com/aymen.chaieb.35/ or call me on +21696329293
